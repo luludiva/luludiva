@@ -7,5 +7,5 @@
 
 ## Você pode entrar em contato comigo
 
-alurastartestudante@email.com
+00001105909372sp@al.educacao.sp.gov.br
 @luludiva
